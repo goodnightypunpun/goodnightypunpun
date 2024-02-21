@@ -1,6 +1,7 @@
 
 HORROR OR PSYCHOLOGICAL MEDIA SAVE ME
-![image](https://github.com/goodnightypunpun/goodnightypunpun/assets/160674311/509dd13e-2ba3-4fa8-9c7f-abb9de084982)
+![image](https://github.com/goodnightypunpun/goodnightypunpun/assets/160674311/38c947a5-d067-4eb9-93b0-d75f3080b64e)
+
 
 
 
