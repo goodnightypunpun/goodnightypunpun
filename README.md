@@ -1,5 +1,5 @@
 
-ALWAYS UP TO TRYING NEW MEDIA OR STUFFF
+ALWAYS UP TO TRYING NEW MEDIA OR STUFFF ![image](https://lifted.crd.co/assets/images/gallery05/fe2fcf59.gif?v=a0ae4590)
 ![image](https://github.com/goodnightypunpun/goodnightypunpun/assets/160674311/38c947a5-d067-4eb9-93b0-d75f3080b64e)
 
 
@@ -11,7 +11,4 @@ ALWAYS UP TO TRYING NEW MEDIA OR STUFFF
 ![image](https://media.discordapp.net/attachments/871191089502093386/1024235522664710164/12122BF3-43B2-4C04-A715-24FC59AD731F.gif)
 ![image](https://media.discordapp.net/attachments/871191089502093386/1024235523176398889/5BC938A3-5B95-4938-8FAA-7D49087E5F3D.gif)
 
-<!---
-goodnightypunpun/goodnightypunpun is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![image](https://github.com/goodnightypunpun/goodnightypunpun/assets/160674311/38dfb8c9-3db8-49c4-a98a-b9125a66acee)![image](https://wilardo.crd.co/assets/images/gallery08/8a4b4f7d.png?v=d19c95ca)![image](https://64.media.tumblr.com/5e20b1bb3dbffcafb05a3a6a9763558d/330a847f340059f7-20/s100x200/829651b35b56b646dd7c7fd6c2d2d08bdfc45fd6.png)
